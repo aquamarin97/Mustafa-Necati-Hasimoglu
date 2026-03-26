@@ -52,9 +52,9 @@ MSc thesis project: Structure-based drug design targeting antibiotic-resistant *
 
 ### 📫 Let's Connect
 
-- 💼 [Upwork](https://www.upwork.com/freelancers/aquamarin97)
-- 📧 [your.email@example.com](mailto:your.email@example.com)
-- 🔗 [LinkedIn](https://linkedin.com/in/aquamarin97)
+- 📫 [mustafanecati184@gmail.com](mailto:mustafanecati184@gmail.com)
+- 🔗 [LinkedIn](www.linkedin.com/in/mustafa-necati-haşimoğlu-4b4936223)
+- 🔗 [Upwork](https://www.upwork.com/freelancers/~0194e609aca8e35e26?mp_source=share)
 
 ---
 
